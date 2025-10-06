@@ -5,6 +5,4 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤVincent or Vinny , fluid prnsㅤㅤㅤㅤㅤㅤㅤcud . comf ㅤㅤㅤㅤㅤㅤㅤfree to c+h
 
-[rentry](https://rentry.co/rottingcorpsess)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[tumblr](https://www.tumblr.com/goodweezer)
-
 
